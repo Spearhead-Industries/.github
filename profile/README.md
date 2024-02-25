@@ -1,1 +1,1 @@
-![image](https://github.com/Spearhead-Industries/.github/assets/20248750/e0fb4680-f142-4830-ab12-5e52b3d3cdff)
+![image](https://github.com/Spearhead-Industries/.github/assets/20248750/8133eec0-3503-44d0-9260-b37c31e0505d)
